@@ -12,4 +12,4 @@ productos mas vendidos de navidad
    ### Se adjunta el Informe
    [[Infome Precios comparados y Recomendaciones](https://docs.google.com/document/d/12I_FNukEXHNfgTNSQWcMx8wY42m5MtjGvdTecqy_t6w/edit?usp=sharing)]
    ### Presentaciones armadas
-   [[Presentaciones sobre Precios comparados y Recomendaciones]( https://gamma.app/docs/Navidad-2025-en-Posadas-Un-Analisis-de-Precios-y-Tendencias-de-Co-njwp397jmse4o5j)]
+   [[Presentaciones sobre Precios comparados y Recomendaciones](https://gamma.app/docs/njwp397jmse4o5j)]
